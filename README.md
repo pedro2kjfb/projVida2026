@@ -1,2 +1,1 @@
-# projVida2026
-amo minha muie (ana) 
+projeto-de-vida
